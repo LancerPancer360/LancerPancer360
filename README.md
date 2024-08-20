@@ -14,6 +14,8 @@
 
 ## 📫 How to Reach Me
 - Email: [lancemirllorenia012@gmail.com](mailto:lancemirllorenia012@gmail.com)
+- Facebook: https://www.facebook.com/bhosxz.lance.77/
+- LinkedIn: https://www.linkedin.com/in/lanceorena02/
 
 ## 😄 Pronouns
 - He/Him
